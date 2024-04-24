@@ -7,4 +7,4 @@
 ![image](https://github.com/19910205/dujiaoka-/assets/117512395/7b0759f9-92c2-46d1-9e58-356fad1cf207)
 ![Screenshot_20240414_023618_com tencent mm_edit_69](https://github.com/19910205/dujiaoka-/assets/117512395/f1804dfe-38ce-4d17-a658-01247be4161c)
 购买地址https://qqhuhu.shop/
-![Uploading {6B7CEEBF-0D57-47ca-9E2B-735FC9DB1291}.png…]()
+![{6B7CEEBF-0D57-47ca-9E2B-735FC9DB1291}](https://github.com/19910205/dujiaoka-/assets/117512395/9175e6fe-cded-4a8d-bf53-3e959f70e345)
